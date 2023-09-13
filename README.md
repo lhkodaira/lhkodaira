@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Sou a Laiz Kodaira, mãe de dois meninos, estudante de Ciências de Dados pela Univesp, estagiária do Programa de Bolsas da Compass Uol e moro em São Paulo/SP, Brasil. 
+Neste meu humilde espaço é possível encontrar diversos estudos e anotações das quais realizei. 
+
+( EM DESENVOLVIMENTO ) 
