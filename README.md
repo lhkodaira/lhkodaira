@@ -23,10 +23,11 @@ Sou a Laiz Kodaira:
 - ex-piscineira da 42sp
 
 Também sou:
-- aprecidora de arte e de boa comida rs
+- apreciadora de arte e de boa comida rs
 - uma boa cozinheira (é o que me dizem rs)
-- nadadora amadora
+- uma tentante à pratica de esportes (nado, corrida, yoga)
 - jogadora de Pokemon Go
+- uma pessoa que adora dirigir
 
 Neste meu humilde espaço é possível encontrar diversos estudos e anotações das quais realizei e realizo :) 
 
